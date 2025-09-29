@@ -1,5 +1,5 @@
 # 💫 About Me:
-Laurin Topolanek<br>📍Austria<br>🏫 Student/Department representative @ HTL Leonding<br>🏈 Center @ Huskies Wels Youth <br>🖥 currently working on SquadGuru
+Laurin Topolanek<br>📍Austria<br>🏫 Student/Department representative @ HTL Leonding<br>🏈 Center @ Huskies Wels Youth <br>
 
 
 ## 🌐 Socials:
